@@ -12,4 +12,4 @@ Meu nome é Marcelo Paludetto
 
 @1086925063sp
 
-![descrição do GIF](link GIF do Tenor)
+![tenor](https://github.com/1086925063sp/bomba/assets/169295022/b85cc4d6-2219-41bd-91c2-bb37fb6a8852)
